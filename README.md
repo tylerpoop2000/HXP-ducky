@@ -3,10 +3,6 @@
 
 I Am Not Responsible For Any Damage
 
-Download 1
+Download:
 
-https://drive.google.com/file/d/11M5zzmPs4BMGpZnN5gnbNcMks5oBk1-T/view?usp=drivesdk
-
-Download 2
-
-https://drive.google.com/uc?export=download&id=11M5zzmPs4BMGpZnN5gnbNcMks5oBk1-T 
+https://drive.google.com/file/d/1-Rk-4uWX16F5Ulj2eXTWqyVxvcWcGemi/view?usp=drivesdk
